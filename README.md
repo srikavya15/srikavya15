@@ -2,7 +2,7 @@
 - 👀 I’m interested in wedevelopment ,machine learning
 - 🌱 I’m currently learning java for backend development
 - 💞️ I’m looking to collaborate on innovative projects on python ,java.With a strong foundation in programming and a passion for continuous learning, I'm excited to contribute my skills to impactful projects. Let's connect and create something amazing together! 
-- 📫 How to reach me LinkedIn: https://www.linkedin.com/in/srikavya-karri-a11b1b29a ,gmail: srikavy.karri15@gmail.com
+- 📫 How to reach me LinkedIn: https://www.linkedin.com/in/srikavya-karri-a11b1b29a ,gmail: srikavya.karri15@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact:I really enjoy listening people sing 
 
